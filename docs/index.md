@@ -26,7 +26,7 @@ A repository of information on the evil mustard people.
 
 Welcome to a site designed to expose the evildoing of <a href="https://herlocherfoods.com">Herlocher Foods</a>, and the people who are the evildoers.  
 
-The Herlochers claim to have "saved" the Rathskellar, but what they have really done is set up an elaborate ruse.  Those who aren't paying enough attention think that the Herlochers saved the building from demolition, and that they are preserving a historic site in State College.  In reality, the Herlochers have manufactured this story (poorly, like their mustard) to promote their brand and make you think they are doing good.  They were never going to demolish the building; only remove the current occupants and sell at a higher rate.  
+The Herlochers claim to have "saved" the Rathskeller, but what they have really done is set up an elaborate ruse.  Those who aren't paying enough attention think that the Herlochers saved the building from demolition, and that they are preserving a historic site in State College.  In reality, the Herlochers have manufactured this story (poorly, like their mustard) to promote their brand and make you think they are doing good.  They were never going to demolish the building; only remove the current occupants and sell at a higher rate.  
 
 Herlocher Business Phone: (814) 237-0134
 
