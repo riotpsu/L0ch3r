@@ -24,7 +24,7 @@ A repository of information on the evil mustard people.
 
 # About
 
-Welcome to a site designed to expose the evildoing of <a href="https://herlocherfoods.com">Herlocher Foods</a>.  
+Welcome to a site designed to expose the evildoing of <a href="https://herlocherfoods.com">Herlocher Foods</a>, and the people who are the evildoers.  
 
 Herlocher Business Phone: (814) 237-0134
 
