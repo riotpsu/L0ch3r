@@ -1,3 +1,5 @@
+[Home](index.md) | [People (You Are Here)](people.md) | [Digital Footprint](footprint.md)
+
 # People
 
 ## Neil Herlocher

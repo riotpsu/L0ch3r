@@ -1,3 +1,5 @@
+[Home](index.md) | [People](people.md) | [Digital Footprint (You Are Here)](footprint.md)
+
 # Digital Footprint
 
 ## Starting at domains...
