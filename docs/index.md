@@ -38,6 +38,6 @@ The complaint was served by Centre County deputy sheriff to Duke Gastiger on Feb
 
 </div>
 
-Source: <a href=http://www.collegian.psu.edu/news/borough/article_c3b34ec0-1106-11e8-b9b6-27cdee9f9910.html>The Daily Collegian</a>
+Source: <a href="http://www.collegian.psu.edu/news/borough/article_c3b34ec0-1106-11e8-b9b6-27cdee9f9910.html">The Daily Collegian</a>
 
 
