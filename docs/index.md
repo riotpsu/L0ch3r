@@ -20,6 +20,7 @@ presents....
 A repository of information on the evil mustard people.
 </pre>
 
+[Home (You Are Here)](index.md) | [People](people.md) | [Digital Footprint](footprint.md)
 
 # About
 
