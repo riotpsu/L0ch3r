@@ -33,13 +33,12 @@ herlochern@aol.com - In MySpace Data Breach
 
 	Neil's Cracked Myspace Password: 
 
-	```
 	Loaded 1 password hash (Raw-SHA1 [SHA1 128/128 AVX 4x])
 
 	Press 'q' or Ctrl-C to abort, almost any other key for status
 
 	lucygirl1        (?)
-	```
+	
 
 ## Social Media
 - [Twitter: @HerlocherFoods](https://twitter.com/HerlocherFoods)
