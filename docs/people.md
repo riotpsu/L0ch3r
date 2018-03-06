@@ -42,7 +42,7 @@ Neighborhood: Highlands
 
 ## Neil's Immediate Family
 
-[Neil Herlocher with his wife,Sharon and their children, from left, Phoebe, Laney and Charlie.](http://www.post-gazette.com/image/2016/07/08/1140x_q90_a10-7_cTC_ca29,51,2556,1736/herlocher.jpg)
+![Neil Herlocher with his wife,Sharon and their children, from left, Phoebe, Laney and Charlie.](http://www.post-gazette.com/image/2016/07/08/1140x_q90_a10-7_cTC_ca29,51,2556,1736/herlocher.jpg)
 
 Above: Neil Herlocher with his wife,Sharon and their children, from left, Phoebe, Laney and Charlie.
 
