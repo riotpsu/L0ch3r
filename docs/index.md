@@ -28,7 +28,7 @@ Welcome to a site designed to expose the evildoing of <a href="https://herlocher
 # News
 
 ### 2018 Feb 13 - "The owners of the since-closed Rathskeller are being taken to court by the Herlocher family"
-<div style="background-color="#e8e8e8">
+<div style="background-color:"#e8e8e8;">
 
 Neil and Chuck Herlocher of Herlocher's Dipping Mustard claim Duke and Monica Gastiger removed property from the location they say was supposed to remain on the premises, according to the Gastiger's prior lease agreement.
 <br><br>
