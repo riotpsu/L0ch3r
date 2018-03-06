@@ -55,6 +55,48 @@ Herlocher Foods also operates as:
 
 Source: <a href="http://www.collegian.psu.edu/news/borough/article_c3b34ec0-1106-11e8-b9b6-27cdee9f9910.html">The Daily Collegian</a>
 
+### 2018 Feb 02 - Is the Skeller being gutted? The Herlochers and Gastigers give their sides of the story.
+
+> The Rathskeller is being “gutted,” according to property owners Neil and Sharon Herlocher.
+> 
+> Duke Gastiger and wife Monica own the Skeller. He said it’s only right to take what belongs to the business following the bar’s Saturday closure and before their lease ends Feb. 28.
+> 
+> “We are taking the assets of the corporation, which is our personal property,” Duke Gastiger said. “We are not taking anything that is the landlord’s property. That’s all I can really say. I would say gutting is a pretty bad word. That's not true.”
+> 
+> The Herlochers and Gastigers disagree on who owns what at the property — a Dec. 5 letter from the Herlochers’ attorney to the Gastigers’ lawyers made clear that the property should not be ripped apart. The letter included several pages of the lease that said alterations could not be made to the property.
+> 
+> A response by the Gastigers’ attorney on Dec. 20 said they had no intention to “trash the place,” but said that sometimes fans of landmarks like baseball stadiums take what they want and perhaps the bathrooms should be guarded.
+> 
+> Duke Gastiger said it would not be necessary to describe what was being taken, though he indicated that the main bar would not be touched.
+> 
+> Fixtures like the tables and booths were being torn out and removed on Thursday, according to Sharon Herlocher who was at the building to address a maintenance issue.
+> 
+> The Herlochers said they are “devastated this historic landmark has been gutted.”
+> 
+> “Our intent all along has been to preserve this building,” Sharon Herlocher said. “Unfortunately, due to this vandalism, it’s going to take more effort to do so. But we remain steadfast in our commitment to this property, this community and to downtown State College.”
+> 
+> There has been no communication between the Gastigers and Tom and Kelley Trosko about a purchase for the business since the new tenants and their plans were revealed on Saturday, the same day the Skeller and Spats closed. Spats will continue operate as part of a new restaurant with the Allen Street Grill.
+> 
+> “We have just received information from our landlord that the current tenant has gutted the Skeller,” Tom and Kelley Trosko said in a statement. “Although we are disappointed, our passion and commitment to preserve this historic landmark will not waver.”
+> 
+> Each side has maintained different accounts about whether an offer was made for the business several months ago.
+> 
+> The Herlochers said an offer was made for the Rathskeller’s liquor license and business during an Oct. 25 meeting with Duke Gastiger who said the only proposal ever made was for half the value of the liquor license.
+> 
+> After that meeting, when Duke Gastiger said he was informed he would no longer be a tenant, he asked the Herlochers in an emailthat the news about the closings be confidential, particularly so his employees wouldn’t find out from anyone else.
+> 
+> Neil Herlocher agreed to keep the news secret in an Oct. 26 email, which also indicated a willingness to negotiate a deal for the business and liquor license followed by an announcement after the football season.
+> 
+> Duke Gastiger said he was not interested in negotiating with the Herlochers after he learned he could not continue to operate the Skeller and Spats. He said several requests were made to be in direct contact with the new tenants to discuss a sale of the business and the employment of his staff, but that his inquiries went unanswered.
+> 
+> The Gastigers announced the closings on Dec. 4, the same day they told their employees they would no longer operate the businesses.
+> 
+> No decision has been made on what to do with memorabilia and furniture from the Rathskeller, according to Duke Gastiger.
+> 
+> “We are trying to be fair,” Duke Gastiger said. “The place will be cleaned. We aren’t destroying anything. We’re really just removing assets, and we really didn’t want to leave like this. It all could have been handled with a simple phone call from the new tenants to us. They made no attempt to contact us and had plenty of opportunities. I’m sorry that the Herlochers and Tom and his wife thought they could walk into the Skeller as it was, but that’s not the case.”
+
+Source: [Centre Daily Times](http://www.centredaily.com/news/local/article198069499.html)
+
 ### 2017 Dec 05 - Save the Skeller: Herlochers Release Open Letter to State College and Penn State Community
 
 > Save The Skeller: An Open Letter To The Penn State and State College Community
