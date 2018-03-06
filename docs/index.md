@@ -25,9 +25,15 @@ A repository of information on the evil mustard people.
 
 Welcome to a site designed to expose the evildoing of <a href="https://herlocherfoods.com">Herlocher Foods</a>.  
 
+Herlocher Business Phone: (814) 237-0134
+
+Herlocher Business Address: 415 E Calder Way State College PA, 16801
+
 ### Also Known As
 
 Herlocher Foods also operates as:
+- Herlocher Properties <http://gc-apartments.com/wp-content/uploads/2012/08/achdebit.pdf>
+- Greenwich Court Apts <http://gc-apartments.com/wp-content/uploads/2012/08/achdebit.pdf>
 - Herlocher Enterprises <https://bestbusinesspa.com/business/1574371/herlocher-enterprises.html>
 - A & H Investments <https://pennsylvaniadb.com/company/1587713/a-h-investments>
 - Ottis Properties <https://www.bizapedia.com/pa/ottis-properties.html>
