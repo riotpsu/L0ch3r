@@ -28,11 +28,16 @@ No longer live.
 
 ### Emails lead to...
 herlochern@aol.com - In MySpace Data Breach
+
 	Neil's Myspace Password Hash: be7bb5e2daa733070a7fbd8f7c0c264f9edfa2d7
+
 	Neil's Cracked Myspace Password: 
+
 	```
 	Loaded 1 password hash (Raw-SHA1 [SHA1 128/128 AVX 4x])
+
 	Press 'q' or Ctrl-C to abort, almost any other key for status
+
 	lucygirl1        (?)
 	```
 
