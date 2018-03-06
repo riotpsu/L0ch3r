@@ -1,3 +1,5 @@
+<html><head><title="Choke on your money"></head><body>
+
 <pre>
  ██▀███   ██▓ ▒█████  ▄▄▄█████▓ ██▓███    ██████  █    ██ 
 ▓██ ▒ ██▒▓██▒▒██▒  ██▒▓  ██▒ ▓▒▓██░  ██▒▒██    ▒  ██  ▓██▒
@@ -24,6 +26,16 @@ A repository of information on the evil mustard people.
 # About
 
 Welcome to a site designed to expose the evildoing of <a href="https://herlocherfoods.com">Herlocher Foods</a>.  
+
+### Also Known As
+
+Herlocher Foods also operates as:
+- Herlocher Enterprises <https://bestbusinesspa.com/business/1574371/herlocher-enterprises.html>
+- A & H Investments <https://pennsylvaniadb.com/company/1587713/a-h-investments>
+- Ottis Properties <https://www.bizapedia.com/pa/ottis-properties.html>
+- Cornelius LLC <https://www.bizapedia.com/pa/cornelius-llc.html>
+- Herlocher Equipment Co. <https://www.bizapedia.com/pa/herlocher-equipment-co.html>
+
 
 # News
 
